@@ -1,3 +1,3 @@
 # demo
 
-same discrtion.
+same discrtion about.
